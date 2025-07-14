@@ -3,7 +3,6 @@
 
 Waaaah, on Zhihu before, our beloved teacher Gao Shan actually accused me of cross-dressing. I sincerely defended the teacher, but Teacher Gao did a good job! It's just great that all the previous answers that mentioned him were deleted! It's not that I'm telling the truth and breaking down my defenses! What they said before was all lies!
 
-![report](./pic/report2.png)
 
 The detestable article that slandered Teacher Gao Shan of the Unmanned Academy has been deleted. Does the author really hate the mentor who has taught you by word and deed for three years? He is simply a disgrace among students! Next, I will clear the name of Teacher Gao Shan. He is not the shameless and selfish bastard as some people say!
 
